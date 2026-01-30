@@ -31,7 +31,7 @@ I'm a passionate **Data Enthusiast** who enjoys transforming data into meaningfu
 ---
 
 ## 📫 How to Reach Me  
-- **LinkedIn**:[https://www.linkedin.com/in/pooja-jha-65ab2b30a?]
+- **LinkedIn**:LinkedIn
 - **Email**: [poojasanjeevkumar52@gmail.com]
 
 ---
